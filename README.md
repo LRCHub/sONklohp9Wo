@@ -1,4 +1,4 @@
-# SOYOU & Junggigo – Some (feat.Geeks Lil Boi) (썸
+# SOYOU & Junggigo – Some (feat.Geeks Lil Boi) (썸 (feat. Lil Boi)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
